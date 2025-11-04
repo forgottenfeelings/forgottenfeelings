@@ -1,1 +1,1 @@
-Hi I'm cool and so are you, yay! 
+Mio get your fucking feet out my face
